@@ -11,13 +11,13 @@ The people doing support and the team members are just... beyond rude and outrig
 
 <div align="center">
 
-![](https://i.imgur.com/SHtfrOA.png)
-![](https://i.imgur.com/Yy2674q.png)
-![](https://i.imgur.com/9ihHvlc.png)
-![](https://i.imgur.com/adzcIBW.png)
-![](https://i.imgur.com/jxA81nE.png)
-![](https://i.imgur.com/9dmjmnz.png)
-![](https://i.imgur.com/AASB0O8.png)
+![](https://i.imgur.com/SHtfrOA.png)  
+![](https://i.imgur.com/Yy2674q.png)  
+![](https://i.imgur.com/9ihHvlc.png)  
+![](https://i.imgur.com/adzcIBW.png)  
+![](https://i.imgur.com/jxA81nE.png)  
+![](https://i.imgur.com/9dmjmnz.png)  
+![](https://i.imgur.com/AASB0O8.png)  
 
 </div>
 
