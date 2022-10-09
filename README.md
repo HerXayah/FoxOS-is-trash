@@ -20,6 +20,7 @@ The people doing support and the team members are just... beyond rude and outrig
 ![](https://i.imgur.com/AASB0O8.png)  
 ![](https://i.imgur.com/cRpYBFQ.png)
 ![](https://i.imgur.com/05MlJCM.png)
+![](https://i.imgur.com/joQTlNQ.png)
 
 Im gonna give you 10 Bucks you will find even more of these once you join their Discord.
 
