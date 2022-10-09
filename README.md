@@ -10,6 +10,7 @@ It advertises itself with Low Latency, beeing debloated and High FPS.
 ## What is my problem?
 
 The people doing support and the team members are just... beyond rude and outright transphobic, nor do they know what their talking about anyways...
+Documentation repo of why i think this piece of software shouldnt be used anymore.
 
 ![](https://i.imgur.com/SHtfrOA.png)  
 ![](https://i.imgur.com/Yy2674q.png)  
@@ -21,6 +22,8 @@ The people doing support and the team members are just... beyond rude and outrig
 ![](https://i.imgur.com/cRpYBFQ.png)
 ![](https://i.imgur.com/05MlJCM.png)
 ![](https://i.imgur.com/joQTlNQ.png)
+![](https://i.imgur.com/JJ142Ol.png)
+![](https://i.imgur.com/yU9VuEC.png)
 
 Im gonna give you 10 Bucks you will find even more of these once you join their Discord.
 
