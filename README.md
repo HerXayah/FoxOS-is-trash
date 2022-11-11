@@ -23,6 +23,7 @@ I created this with the premise to show how they werent punished at all _aside f
 
 However the members are still a problem.
 And yes im throwing them all in one pot on purpose.
+
 ![](https://media.discordapp.net/attachments/735247057140580475/1040619456709267482/Screenshot_2022-11-11-14-29-17-31_572064f74bd5f9fa804b05334aa4f912.jpg)
 
 This is just unnecessary bad press for your product and makes it ultimately worse to use, not in features, but anything else.
