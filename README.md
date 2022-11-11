@@ -29,7 +29,7 @@ And yes im throwing them all in one pot on purpose.
 This is just unnecessary bad press for your product and makes it ultimately worse to use, not in features, but anything else.
 
 I will take my freedom to archive the stuff below.
-Also scroll down for the funney.
+Also scroll down for the funney at the bottom below the archive.
 
 ### Archive
 
