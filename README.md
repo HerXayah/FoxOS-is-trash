@@ -29,14 +29,7 @@ And yes im throwing them all in one pot on purpose.
 This is just unnecessary bad press for your product and makes it ultimately worse to use, not in features, but anything else.
 
 I will take my freedom to archive the stuff below.
-
-## BONUS MEEEEEEEEEEMEEEEEEEEE
-
-![](https://media.discordapp.net/attachments/735247057140580475/1040630364026179654/IMG_20221111_151312.jpg)
-
-jpaidyt = jaypaidyt
-
-![](https://i.pinimg.com/originals/0c/df/c8/0cdfc839b7e5d620a8431392eb90289e.jpg)
+Also scroll down for the funney.
 
 ### Archive
 
@@ -61,5 +54,17 @@ Documentation repo of why i think this piece of software shouldnt be used anymor
 ![](https://i.imgur.com/yU9VuEC.png)
 
 Im gonna give you 10 Bucks you will find even more of these once you join their Discord.
+
+<hr>
+
+## BONUS MEEEEEEEEEEMEEEEEEEEE
+
+![](https://media.discordapp.net/attachments/735247057140580475/1040630364026179654/IMG_20221111_151312.jpg)
+
+jpaidyt = jaypaidyt
+
+![](https://i.pinimg.com/originals/0c/df/c8/0cdfc839b7e5d620a8431392eb90289e.jpg)
+
+jk jk. seriously thats my humor. worse than the availability of the ReviOS downloads.
 
 </div>
